@@ -3,7 +3,7 @@
 Custom signs and displays are essential tools for attracting attention, conveying brand messaging, and enhancing customer experiences in retail, trade shows, offices, and events. Whether it's a branded tabletop display or a full-size freestanding sign, these solutions help businesses in Irvine communicate visually and stand out in competitive environments. Wholesale options allow companies to get consistent, high-quality signage at scale and cost-effective pricing.
 
 ---
-[Explore Our Custom Signs and Displays](https://www.bluerosepackaging.com/product-category/custom-products/custom-signs-and-displays/)
+[Explore Our Custom Signs and Displays](https://www.bluerosepackaging.com/product-category/custom-products/signs-and-displays/)
 ---
 
 ## Types of Custom Signs and Displays We Offer
